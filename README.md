@@ -3,7 +3,7 @@
 ### *Pia* Andrea > Garza
 > Calabanga, Camarines Sur
 ---
-Social Media
+Social Media (dm me pls lol)
 - [reddit](https://www.reddit.com/user/Receptionist-san/)
 ---
 #  Favorite pop group
